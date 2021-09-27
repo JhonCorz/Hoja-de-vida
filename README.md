@@ -23,3 +23,5 @@ EMAIL: **JohnCorz88@gmail.com**
 
 _Ingeniero de sistemas en formacion_ 🛠️🚀
 
+**Link:** https://jhoncorz.github.io/Hoja-de-vida/
+
